@@ -11,6 +11,13 @@
         
 
 
+　　   　　i lovw my friends a lot hi rue hi nick hi jg hi pt party  [ so all who i have mentioned . hlep ]  hi i love you guys with all my heart ok ?
+
+
+![image](https://github.com/user-attachments/assets/426de2f1-f12c-4f27-9af9-133c17ebbcb0)![image](https://github.com/user-attachments/assets/b3c1ecb0-9df9-4a12-a586-d7372fefd16d)<img width="267" height="144" alt="514917069-55069540-da3d-4c95-a3ee-03f4e3137b80" src="https://github.com/user-attachments/assets/465e82ed-9d8e-4484-bacd-a8899a39c3cf" />
+
+
+
 
 
 
